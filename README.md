@@ -1,2 +1,2 @@
-Just a Toku-fanboy, Marvel-fanboy and a gamer.
+Just a Toku-fanboy, Marvel-fanboy and a gamer
 🐶🤥😈🐸😺💩👽👻💀🤔🐷🤗🤓🥺😢
